@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dubalot
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning Astrophysics
+- 💞️ I’m looking to collaborate on solo
+- 📫 How to reach me Switzerland
